@@ -1,1 +1,1 @@
-# Abbas-Gandhi-Sales-Portfolio.
+# Abbas-Gandhi-Sales-Portfolio
